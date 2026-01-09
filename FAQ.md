@@ -1,1 +1,1 @@
-This is FAQ file created for the first time by Addison.
+This is updated by Sangita.
