@@ -1,1 +1,1 @@
-This is the second redaction of FAQ.
+This is updated by Sangita.
